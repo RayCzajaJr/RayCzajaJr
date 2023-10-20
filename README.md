@@ -6,4 +6,5 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am a (very) amateur underwater photographer.
 
-![DSC_2242](https://github.com/RayCzajaJr/RayCzajaJr/assets/121678954/f5bfd628-cb30-4ad6-a224-58c74e6496ed)
+![DSC_0071](https://github.com/RayCzajaJr/RayCzajaJr/assets/121678954/fb563b72-85ad-4e1b-93f9-40a8dc56f1a1)
+
